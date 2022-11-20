@@ -1,4 +1,4 @@
-### Hi there ![giphy](https://user-images.githubusercontent.com/114145759/202926593-522a5da3-861f-43ae-80e9-6f6e0b8dc142.gif)
+### Hi there !                                          [giphy](https://user-images.githubusercontent.com/114145759/202926593-522a5da3-861f-43ae-80e9-6f6e0b8dc142.gif)
 
 
 <!--
